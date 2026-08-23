@@ -1,16 +1,30 @@
-## Hi there 👋
+<img src="IMG_1408.jpeg" width="600">
 
-<!--
-**PuppyDolly/PuppyDolly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="IMG_1412.jpeg" width="600">
 
-Here are some ideas to get you started:
+<img src="IMG_1411.jpeg" width="600">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br><br> 
+--- 
+
+love 
+
+<img src="IMG_1409.jpeg" width="600">
+
+<img src="IMG_1414.jpeg" width="600">
+
+<img src="IMG_1413.jpeg" width="600">
+
+<br><br> 
+--- 
+you <3
+
+<img src="IMG_1410.jpeg" width="600">
+
+<img src="IMG_1415.jpeg" width="600">
+
+<img src="IMG_1416.jpeg" width="600">
+
+<img src="IMG_1417.jpeg" width="600">
+
+🐶
