@@ -7,7 +7,6 @@
 <br><br> 
 --- 
 
-love 
 
 <img src="IMG_1409.jpeg" width="600">
 
@@ -17,7 +16,6 @@ love
 
 <br><br> 
 --- 
-you <3
 
 <img src="IMG_1410.jpeg" width="600">
 
